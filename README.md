@@ -1,3 +1,4 @@
 # DITActivity
 
-Add this remortly
+Add this remotely
+Good boys on point
